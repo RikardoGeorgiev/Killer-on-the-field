@@ -1,3 +1,3 @@
 # tva e mnogo qko
-* [miro kurti](facebuk.cum/mirotvoreca)
-* [rikardo mnogo kurti](facebuk.cum/mirotvorecasrikardo)
+* [miro kurti](https://facebook.cum/mirotvoreca)
+* [rikardo mnogo kurti](https://facebook.cum/mirotvorecasrikardo)
