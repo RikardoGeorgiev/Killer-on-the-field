@@ -1,0 +1,5 @@
+W A S D for moving
+E for interacting
+P for profile
+I for inventory
+U for use
